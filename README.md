@@ -39,7 +39,7 @@
 
 - Amoolya P N  
 - Soujanya Oralagi  
-- Shreyas Gowda  
+- Shreyas G Gowda  
 
 ---
 
